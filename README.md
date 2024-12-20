@@ -1,2 +1,2 @@
 # MyPoliglotAI
-sexoooooooooooo
+proyecto en curso
